@@ -1,1 +1,1 @@
-Lưu giữ lại những niềm đau
+Lưu giữ những niềm đau
